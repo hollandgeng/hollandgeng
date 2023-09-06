@@ -13,7 +13,7 @@
 
 ### I am Wong Jing Wei
 
-* Mobile App Developer at Gain Secure Sdh Bhd
+* Mobile App Developer at Soft Space Sdh Bhd
 * Game Enthusiast
 * Loves Badminton
 
